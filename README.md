@@ -1,4 +1,4 @@
-Josh Chen
+Josh Chen | SFU BCS Computing Science 
 
 How to reach me: jca432@sfu.ca
 
